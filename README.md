@@ -6,4 +6,4 @@
 
 <p><em>Nossa missão é; <strong>"Proporcionar auto-estima e qualidade de vida aos clientes"</strong>.</em></p>
 
-<p>Oferecemos
+<p>Oferecemos profissionais experientes e antenados ás mudança no mundo da moda. O atendimento possui padrão de excelência e agilidade, garantia qualidade e satisfação dos nossos clientes.</p>
